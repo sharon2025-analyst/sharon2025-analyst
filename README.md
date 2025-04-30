@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sharon2025-analyst
-- 👀 I’m interested in data, data analysis especially in the financial domain(because i am a numerical fan, haha).
+- 👀 I’m interested in data, data analysis especially in the financial domain(because i am a numbers' fan, haha).
 - 🌱 I'm a recent graduate of the Google data analysis program.
 - 💞️ I’m looking to collaborate on projects, whatsoever they may be.
 - 📫 How to reach me sharonefeti97@gmail.com
